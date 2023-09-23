@@ -1,5 +1,5 @@
 - 👋 Olá eu sou @joseamerico-git
-- 👀 Estou interessado em aprender e trabalhar com TI.
+- 👀 Estou utilizando o GitHub...
 
 - 📫 Contato (18) 99766 8008.
 
